@@ -1,1 +1,1 @@
-# krouzek-tutoraily
+# krouzek-tutorialy
